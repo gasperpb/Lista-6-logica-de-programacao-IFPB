@@ -1,0 +1,1 @@
+# Lista-6-logica-de-programacao-IFPB
